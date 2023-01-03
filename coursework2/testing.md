@@ -1,0 +1,1 @@
+![test_result](img/24751672759645_.pic_hd.jpg)
